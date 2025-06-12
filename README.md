@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on data minded individuals to learn and grow toghether 
 - 📫 How to reach me by contacting me on Github @InsigntWithBello
 - 😄 Pronouns: 
-- ⚡ Fun fact: Love playin with numbers
+- ⚡ Fun fact: Love playing with numbers
   
 
 <!---
